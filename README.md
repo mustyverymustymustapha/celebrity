@@ -1,0 +1,1 @@
+fake celebrity headline generator. DO NOT USE MALICIOUSLY. THIS IS ONLY FOR ENTERTAINMENT PURPOSES.![C330A4FC-3EA4-4BD5-80A0-BFFBFAA0FB89](https://github.com/user-attachments/assets/145d6dd9-2a31-4e84-84c3-91784237c95f)
